@@ -1,0 +1,1 @@
+# 20050974066_Nisa-Nur-Sholicha_UAS-STKI
